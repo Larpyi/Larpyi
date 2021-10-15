@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Thomas
-- 👀 I’m interested in car, IT services, tattoo,etc.
-- 🌱 I’m curently learning european roots
-- 💞️ I’m Při pohledu na spolupráci s BMW a Dodge Automotive jsem v očekávání
+- 👀 I’m curently interested for a driving car, automotive, gaming play, development, learning, anything to everything, survive in jungle
+- 🌱 
+- 💞️ 
 - 📫 Reach me near Teplitz in Dux City. Email elmuendognarto@gmail.com
 
 <!---
